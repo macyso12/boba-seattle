@@ -12,6 +12,7 @@ Are you looking for boba stores in Seattle? You are at the right place! This sum
 | [Rare Tea](https://rareteasonoma.square.site/) | Kirkland, WA | Strawberry Milk Tea | 4/5 | $5-7
 | [ShareTea](https://www.1992sharetea.com/) | Multiple Locations | Honey Jasmine Green Tea | 4/5 | $5-7
 | [Happy Lemon](https://happylemonseattle.com/) | Multiple Locations | Honey Jasmine Green Tea | 2/5 | $6-8
+| [Drip Tea](https://thedriptea.com/) | Seattle, WA | Monogram | 5/5 | $6-7 |
 | [Bobaup](https://bobaupseattle.com/) | Seattle, WA | Self-Serve - PassionFruit Mango Tea | 3.5/5 | $5-8 (depending on size) | You MAKE your own boba!! |
 
 Last Updated: June 19th, 2023
