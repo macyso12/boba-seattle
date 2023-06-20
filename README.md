@@ -22,4 +22,4 @@ Are you looking for boba stores in Seattle? You are at the right place! This sum
 | [YiFang](https://www.yifangteapnw.com/) | Multiple Location |
 | [Ding Tea](https://www.clover.com/online-ordering/ding-tea-seattle-seattle-2) | Seattle, WA |
 
-Last Updated: June 19th, 2023
+Last Updated: June 20th, 2023
