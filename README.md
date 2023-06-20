@@ -1,4 +1,4 @@
-# Boba Seattle
+# 🧋 Boba Seattle
 
 Are you looking for boba stores in Seattle? You are at the right place! This summer I will be going around Seattle, searching as many boba shops as I can, and discovering them from the depth of Seattle. I am just here looking out for my fellow boba lovers to find the best boba we have in Seattle.
 
