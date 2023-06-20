@@ -14,5 +14,12 @@ Are you looking for boba stores in Seattle? You are at the right place! This sum
 | [Happy Lemon](https://happylemonseattle.com/) | Multiple Locations | Honey Jasmine Green Tea | 2/5 | $6-8
 | [Drip Tea](https://thedriptea.com/) | Seattle, WA | Monogram | 5/5 | $6-7 |
 | [Bobaup](https://bobaupseattle.com/) | Seattle, WA | Self-Serve - PassionFruit Mango Tea | 3.5/5 | $5-8 (depending on size) | You MAKE your own boba!! |
+| [Boba Gem Tea House](https://www.bobagemteahouse.com/) | Seattle, WA |
+| [Moge Tea](https://pos.chowbus.com/online-ordering/store/13988) | Multiple Location |
+| [Don't Yell At Me](https://www.instagram.com/dontyellatme.usa/?hl=en) | Multiple Location |
+| [Oasis Tea Zone](https://www.oasisteazone.com/) | Seattle, WA |
+| [Boba Lust](https://www.bobalustteahouse.com/) | Seattle, WA |
+| [YiFang](https://www.yifangteapnw.com/) | Multiple Location |
+| [Ding Tea](https://www.clover.com/online-ordering/ding-tea-seattle-seattle-2) | Seattle, WA |
 
 Last Updated: June 19th, 2023
