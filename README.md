@@ -18,7 +18,7 @@ Are you looking for boba stores in Seattle? You are at the right place! This sum
 | [Moge Tea](https://pos.chowbus.com/online-ordering/store/13988) | Multiple Location | Earl Grey Bubble Milk Tea | 3.5/5  | $5-8 | 
 | [Oasis Tea Zone](https://www.oasisteazone.com/) | Seattle, WA | | | | A lot of different flavours|
 | [YiFang](https://www.yifangteapnw.com/) | Multiple Location | Yi Fang Fruit Tea | 4/5 | $5-7 | Very famous for their fruit tea |
-| [Don't Yell At Me](https://www.instagram.com/dontyellatme.usa/?hl=en) | Multiple Location |
+| [Don't Yell At Me](https://www.instagram.com/dontyellatme.usa/?hl=en) | Multiple Location | Brown Sugar Milk Tea | 4.5/5 | $5-7 | They have Egg Puffs!! |
 | [Boba Gem Tea House](https://www.bobagemteahouse.com/) | Seattle, WA |
 | [Boba Lust](https://www.bobalustteahouse.com/) | Seattle, WA |
 | [Ding Tea](https://www.clover.com/online-ordering/ding-tea-seattle-seattle-2) | Seattle, WA |
