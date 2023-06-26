@@ -23,4 +23,4 @@ Are you looking for boba stores in Seattle? You are at the right place! This sum
 | [Boba Lust](https://www.bobalustteahouse.com/) | Seattle, WA |
 | [Ding Tea](https://www.clover.com/online-ordering/ding-tea-seattle-seattle-2) | Seattle, WA |
 
-Last Updated: June 21st, 2023
+Last Updated: June 25th, 2023
