@@ -2,7 +2,7 @@
 
 Are you looking for boba stores in Seattle? You are at the right place! This summer I will be going around Seattle, searching as many boba shops as I can, and discovering them from the depth of Seattle. I am just here looking out for my fellow boba lovers to find the best boba we have in Seattle.
 
-Note: ALWAYS get LESS ICE
+**Note: ALWAYS get LESS ICE**
 
 ![Boba Banner](https://github.com/macyso12/boba-seattle/assets/75864321/121a452d-7441-484f-9e54-22d0324888da)
 
