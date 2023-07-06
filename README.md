@@ -17,7 +17,7 @@ Are you looking for boba stores in Seattle? You are at the right place! This sum
 | [Drip Tea](https://thedriptea.com/) | Seattle, WA | Monogram | 5/5 | $6-7 |
 | [Bobaup](https://bobaupseattle.com/) | Seattle, WA | Self-Serve - PassionFruit Mango Tea | 3.5/5 | $5-8 (depending on size) | You MAKE your own boba!! And you can get a punch card|
 | [Tea Addict](https://www.teaaddictsboba.com/) | Seattle, WA | Passion Fruit Tea | 3/5 | $6-7 |Party of 3 can get free fries, and party of 4 can get free pop-corn chicken |
-| [Moge Tea](https://pos.chowbus.com/online-ordering/store/13988) | Multiple Location | Earl Grey Bubble Milk Tea | 3.5/5  | $5-8 | 
+| [Moge Tea](https://pos.chowbus.com/online-ordering/store/13988) | Multiple Location | Earl Grey Bubble Milk Tea | 3.5/5  | $5-8 | it's a chain - it's alright
 | [Oasis Tea Zone](https://www.oasisteazone.com/) | Seattle, WA | | | | A lot of different flavours|
 | [YiFang](https://www.yifangteapnw.com/) | Multiple Location | Yi Fang Fruit Tea | 4/5 | $5-7 | Very famous for their fruit tea |
 | [Don't Yell At Me](https://www.instagram.com/dontyellatme.usa/?hl=en) | Multiple Location | Brown Sugar Milk Tea | 4.5/5 | $5-7 | They have Egg Puffs!! |
