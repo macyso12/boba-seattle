@@ -23,7 +23,8 @@ Are you looking for boba stores in Seattle? You are at the right place! This sum
 | [Don't Yell At Me](https://www.instagram.com/dontyellatme.usa/?hl=en) | Multiple Location | Brown Sugar Milk Tea | 4.5/5 | $5-7 | They have Egg Puffs!! |
 | [DIY Tea Lab](https://www.ordertogo.com/restaurants/diyballard/mesh) | Seattle, WA | Life Is Pecah | 3/5 | $5-7 | They are mid
 | [The Moo Milk Bar](https://www.themoomilkbar.com/) | Seattle, WA | Brown Sugar Boba | 5/5 | $6-8 | They will give you a mason jar, and if you bring it back - it will be cheaper because they can refill it for you.
-| [Boba Gem Tea House](https://www.bobagemteahouse.com/) | Seattle, WA |
+| [Sunright](https://www.snrtea.com/washington) | Seattle, WA | Sunright Milk Tea | 4/5 | $6-8 | Absolutely love sunRight | 
+| [Boba Gem Tea House](https://www.bobagemteahouse.com/) | Seattle, WA | 
 | [Boba Lust](https://www.bobalustteahouse.com/) | Seattle, WA |
 | [Ding Tea](https://www.clover.com/online-ordering/ding-tea-seattle-seattle-2) | Seattle, WA 
 
