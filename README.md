@@ -29,4 +29,4 @@ Are you looking for boba stores in Seattle? You are at the right place! This sum
 | [Ding Tea](https://www.clover.com/online-ordering/ding-tea-seattle-seattle-2) | Seattle, WA 
 
 
-Last Updated: July 14th, 2023
+Last Updated: July 20th, 2023
